@@ -1,1 +1,2 @@
-- [Enamel espresso cups](https://www.rinkit.com/products/130ml-white-enamel-espresso-cup-by-argon-tableware?variant=45183874760891) x2
+- [Enamel espresso cups](https://www.rinkit.com/products/130ml-white-enamel-espresso-cup-by-argon-tableware?variant=45183874760891) x2 (Rinkit, £1.60)
+- [Travel tea mug](https://www.johnlewis.com/stanley-aerolight-transit-leak-proof-travel-mug-350ml/black/p110979714) (John Lewis, £31.99)
