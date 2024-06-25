@@ -13,7 +13,7 @@
 - [Link - Chapter IV LP](https://doomrock.com/music/lp/652/link-chapter-iv-lp) (DoomRock, €15.00)
 - [Ancst / King Apathy (Thränenkind) - Split LP](https://doomrock.com/music/lp/505/ancst/king-apathy-thraenenkind-split-lp-5.-versions) (DoomRock, €15.00)
 - [Remains Of The Day - Hanging On Rebellion LP](https://doomrock.com/music/lp/934/remains-of-the-day-hanging-on-rebellion-lp-2.-versions) (DoomRock, €15.00)
-- [Terra Mater - Holocene Extinction Parts I & II LP 17](https://doomrock.com/music/lp/1124/terra-mater-holocene-extinction-parts-i-ii-lp) (DoomRock, €17.00)
+- [Terra Mater - Holocene Extinction Parts I & II LP](https://doomrock.com/music/lp/1124/terra-mater-holocene-extinction-parts-i-ii-lp) (DoomRock, €17.00)
 - [Ecocide - When Will It End? LP](https://doomrock.com/tofu-carnage-records/1185/ecocide-when-will-it-end-lp) (DoomRock, €18.00)
 - [Red tin wind-up cable car](https://thehendersonsshop.co.uk/products/red-tin-toy-cable-car) (The Hendersons Shop, £38.00)
 - [Paine's Log Cabin Burner - Small](https://thehendersonsshop.co.uk/products/copy-of-paines-log-cabin-burner-small) (The Hendersons Shop, £11.99)
