@@ -18,5 +18,6 @@
 - [Red tin wind-up cable car](https://thehendersonsshop.co.uk/products/red-tin-toy-cable-car) (The Hendersons Shop, £38.00)
 - [Paine's Log Cabin Burner - Small](https://thehendersonsshop.co.uk/products/copy-of-paines-log-cabin-burner-small) (The Hendersons Shop, £11.99)
 - [Discogs](https://www.discogs.com/wantlist?user=161)
+- 54mm bottomless portafilter
 - Live edge wooden chopping/serving board, round ~35cm
 - Circular saw guide rails
