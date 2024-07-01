@@ -3,6 +3,7 @@
 - [KeySmart SmartCard](https://www.getkeysmart.com/products/keysmart-smartcard) (KeySmart, $39.99)
 - [Travel tea mug](https://www.johnlewis.com/stanley-aerolight-transit-leak-proof-travel-mug-350ml/black/p110979714) (John Lewis, £31.99)
 - [Lezyne Air Cage](https://www.swinnertoncycles.co.uk/lezyne-bottle-cage-matrix-air-cage-p129206/s375774) (Swinnerton Cycles, £30.00)
+- [18 piece Matte finish Cutlery Set](https://utilitygreatbritain.co.uk/products/matt-finish-cutlery) (Utility, £90.00)
 - [Duralex Picardie glasses 16cl](https://www.rinkit.com/products/duralex-picardie-traditional-tumbler-glasses-130ml-set-of-6) (Rinkit, £7.19)
 - [Duralex Picardie glasses 36cl](https://www.rinkit.com/collections/duralex-picardie-range/products/duralex-picardie-traditional-tumbler-glasses-360ml-set-of-6) (Rinkit, £14.09)
 - [Precision / Jazz Style Bass Guitar Hard Case](https://hiscoxcases.com/products/precision-jazz-standard-bass-guitar-hard-case-pro-ii-spec) (Hiscox Cases, £159.00) - `@todo check size`
