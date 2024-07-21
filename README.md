@@ -11,6 +11,8 @@
 - [Inflatable travel pillow](https://www.decathlon.co.uk/p/inflatable-trekking-pillow-mt500/_/R-p-343604) (Decathlon, £14.99)
 - [The Vegan Butcher - Zacchary Bird](https://www.waterstones.com/book/the-vegan-butcher/zacchary-bird/9781922754097) (Waterstones, £25.00)
 - [Anything You Can Cook, I Can Cook Vegan - Richard Makin ](https://www.waterstones.com/book/anything-you-can-cook-i-can-cook-vegan/richard-makin/9781526638410) (Waterstones, £25.00)
+- [Habak / Lagrimas - Split LP](https://doomrock.com/music/lp/1538/habak/lagrimas-split-lp-2.-versions) (DoomRock, €20.00)
+- [Habak / Fractal - Split LP](https://doomrock.com/music/lp/1531/habak/fractal-split-lp) (DoomRock, €20.00)
 - [Link - Chapter IV LP](https://doomrock.com/music/lp/652/link-chapter-iv-lp) (DoomRock, €15.00)
 - [Ancst / King Apathy (Thränenkind) - Split LP](https://doomrock.com/music/lp/505/ancst/king-apathy-thraenenkind-split-lp-5.-versions) (DoomRock, €15.00)
 - [Remains Of The Day - Hanging On Rebellion LP](https://doomrock.com/music/lp/934/remains-of-the-day-hanging-on-rebellion-lp-2.-versions) (DoomRock, €15.00)
