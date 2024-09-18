@@ -1,12 +1,12 @@
 - ~~[Makita SDS drill](https://www.toolstation.com/makita-3-function-800w-sds-rotary-hammer-drill/p20464) (Toolstation, £144.98)~~
-- [Enamel espresso cups](https://www.rinkit.com/products/130ml-white-enamel-espresso-cup-by-argon-tableware?variant=45183874760891) x2 (Rinkit, £1.60)
+- ~~[Enamel espresso cups](https://www.rinkit.com/products/130ml-white-enamel-espresso-cup-by-argon-tableware?variant=45183874760891) x2 (Rinkit, £1.60)~~
 - [KeySmart SmartCard](https://www.getkeysmart.com/products/keysmart-smartcard) (KeySmart, $39.99)
 - [Travel tea mug](https://www.johnlewis.com/stanley-aerolight-transit-leak-proof-travel-mug-350ml/black/p110979714) (John Lewis, £31.99)
 - [Lezyne Air Cage](https://www.swinnertoncycles.co.uk/lezyne-bottle-cage-matrix-air-cage-p129206/s375774) (Swinnerton Cycles, £30.00)
 - ~~[Apple AirPods Pro](https://www.apple.com/uk/airpods-pro/) (Apple, £229.00)~~
 - ~~[18 piece Matte finish Cutlery Set](https://utilitygreatbritain.co.uk/products/matt-finish-cutlery) (Utility, £90.00)~~
-- [Duralex Picardie glasses 16cl](https://www.rinkit.com/products/duralex-picardie-traditional-tumbler-glasses-130ml-set-of-6) (Rinkit, £7.19)
-- [Duralex Picardie glasses 36cl](https://www.rinkit.com/collections/duralex-picardie-range/products/duralex-picardie-traditional-tumbler-glasses-360ml-set-of-6) (Rinkit, £14.09)
+- ~~[Duralex Picardie glasses 16cl](https://www.rinkit.com/products/duralex-picardie-traditional-tumbler-glasses-130ml-set-of-6) (Rinkit, £7.19)~~
+- ~~[Duralex Picardie glasses 36cl](https://www.rinkit.com/collections/duralex-picardie-range/products/duralex-picardie-traditional-tumbler-glasses-360ml-set-of-6) (Rinkit, £14.09)~~
 - [Precision / Jazz Style Bass Guitar Hard Case](https://hiscoxcases.com/products/precision-jazz-standard-bass-guitar-hard-case-pro-ii-spec) (Hiscox Cases, £159.00) - `@todo check size`
 - [Dunlop Wellington boots size 9](https://www.toolstation.com/dunlop-protomaster-safety-wellington-boots/p66093) (Toolstation, £11.19)
 - [Inflatable travel pillow](https://www.decathlon.co.uk/p/inflatable-trekking-pillow-mt500/_/R-p-343604) (Decathlon, £14.99)
