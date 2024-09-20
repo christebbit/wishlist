@@ -9,7 +9,7 @@
 - ~~[Duralex Picardie glasses 36cl](https://www.rinkit.com/collections/duralex-picardie-range/products/duralex-picardie-traditional-tumbler-glasses-360ml-set-of-6) (Rinkit, £14.09)~~
 - [Precision / Jazz Style Bass Guitar Hard Case](https://hiscoxcases.com/products/precision-jazz-standard-bass-guitar-hard-case-pro-ii-spec) (Hiscox Cases, £159.00) - `@todo check size`
 - [Dunlop Wellington boots size 9](https://www.toolstation.com/dunlop-protomaster-safety-wellington-boots/p66093) (Toolstation, £11.19)
-- [Inflatable travel pillow](https://www.decathlon.co.uk/p/inflatable-trekking-pillow-mt500/_/R-p-343604) (Decathlon, £14.99)
+- ~~[Inflatable travel pillow](https://www.decathlon.co.uk/p/inflatable-trekking-pillow-mt500/_/R-p-343604) (Decathlon, £14.99)~~
 - [The Vegan Butcher - Zacchary Bird](https://www.waterstones.com/book/the-vegan-butcher/zacchary-bird/9781922754097) (Waterstones, £25.00)
 - ~~[Anything You Can Cook, I Can Cook Vegan - Richard Makin ](https://www.waterstones.com/book/anything-you-can-cook-i-can-cook-vegan/richard-makin/9781526638410) (Waterstones, £25.00)~~
 - [Habak / Lagrimas - Split LP](https://doomrock.com/music/lp/1538/habak/lagrimas-split-lp-2.-versions) (DoomRock, €20.00)
