@@ -4,6 +4,7 @@
 - [KeySmart SmartCard](https://www.getkeysmart.com/products/keysmart-smartcard) (KeySmart, $39.99)
 - [Travel tea mug](https://www.johnlewis.com/stanley-aerolight-transit-leak-proof-travel-mug-350ml/black/p110979714) (John Lewis, £31.99)
 - [Lezyne Air Cage](https://www.swinnertoncycles.co.uk/lezyne-bottle-cage-matrix-air-cage-p129206/s375774) (Swinnerton Cycles, £30.00)
+- [Circular saw guide rails](https://www.toolstation.com/evolution-circular-saw-track-rail/p15722) (Toolstation, £51.98)
 - ~~[Apple AirPods Pro](https://www.apple.com/uk/airpods-pro/) (Apple, £229.00)~~
 - ~~[18 piece Matte finish Cutlery Set](https://utilitygreatbritain.co.uk/products/matt-finish-cutlery) (Utility, £90.00)~~
 - ~~[Duralex Picardie glasses 16cl](https://www.rinkit.com/products/duralex-picardie-traditional-tumbler-glasses-130ml-set-of-6) (Rinkit, £7.19)~~
@@ -25,4 +26,3 @@
 - [Discogs](https://www.discogs.com/wantlist?user=161)
 - 54mm bottomless portafilter
 - Live edge wooden chopping/serving board, round ~35cm
-- Circular saw guide rails
