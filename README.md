@@ -1,6 +1,8 @@
 - ~~[Makita SDS drill](https://www.toolstation.com/makita-3-function-800w-sds-rotary-hammer-drill/p20464) (Toolstation, £144.98)~~
 - ~~[Enamel espresso cups](https://www.rinkit.com/products/130ml-white-enamel-espresso-cup-by-argon-tableware?variant=45183874760891) x2 (Rinkit, £1.60)~~
 - ~~[AlpKit Exo-Rail saddle pack mount](https://alpkit.com/products/exo-rail-seat-pack-mounting-system) (AlpKit, £17.99)~~
+- [Coffee Dosing Tray](https://uk.tenshundredsthousands.com/products/coffee-dosing-tray) (Tens Hundreds Thousands, £14.00)
+- [DF64 Gen 2 Single Dose Coffee Grinder](https://df64coffee.com/products/df64-gen-2-single-dose-coffee-grinder) (DF64 Coffee, £314.00)
 - [KeySmart SmartCard](https://www.getkeysmart.com/products/keysmart-smartcard) (KeySmart, $39.99)
 - [Travel tea mug](https://www.johnlewis.com/stanley-aerolight-transit-leak-proof-travel-mug-350ml/black/p110979714) (John Lewis, £31.99)
 - [Lezyne Air Cage](https://www.swinnertoncycles.co.uk/lezyne-bottle-cage-matrix-air-cage-p129206/s375774) (Swinnerton Cycles, £30.00)
@@ -24,5 +26,5 @@
 - [Red tin wind-up cable car](https://thehendersonsshop.co.uk/products/red-tin-toy-cable-car) (The Hendersons Shop, £38.00)
 - [Paine's Log Cabin Burner - Small](https://thehendersonsshop.co.uk/products/copy-of-paines-log-cabin-burner-small) (The Hendersons Shop, £11.99)
 - [Discogs](https://www.discogs.com/wantlist?user=161)
-- 54mm bottomless portafilter
+- [54mm bottomless portafilter](https://sigmacoffee.co.uk/collections/espresso-accessories/products/knodos-bottomless-portafilter?variant=44055744217329) (Sigma Coffee, £45.00)
 - Live edge wooden chopping/serving board, round ~35cm
