@@ -1,3 +1,4 @@
+- [Cyclista Antifascista cycling cap](https://cyclepunks.cc/product/ciclista-antifascista-cycling-cap/) (Cycle Punks, €22.90)
 - ~~[Makita SDS drill](https://www.toolstation.com/makita-3-function-800w-sds-rotary-hammer-drill/p20464) (Toolstation, £144.98)~~
 - ~~[Enamel espresso cups](https://www.rinkit.com/products/130ml-white-enamel-espresso-cup-by-argon-tableware?variant=45183874760891) x2 (Rinkit, £1.60)~~
 - ~~[AlpKit Exo-Rail saddle pack mount](https://alpkit.com/products/exo-rail-seat-pack-mounting-system) (AlpKit, £17.99)~~
@@ -12,7 +13,6 @@
 - ~~[Duralex Picardie glasses 16cl](https://www.rinkit.com/products/duralex-picardie-traditional-tumbler-glasses-130ml-set-of-6) (Rinkit, £7.19)~~
 - ~~[Duralex Picardie glasses 36cl](https://www.rinkit.com/collections/duralex-picardie-range/products/duralex-picardie-traditional-tumbler-glasses-360ml-set-of-6) (Rinkit, £14.09)~~
 - ~~[Precision / Jazz Style Bass Guitar Hard Case](https://hiscoxcases.com/products/precision-jazz-standard-bass-guitar-hard-case-pro-ii-spec) (Hiscox Cases, £159.00) - `@todo check size`~~
-- [Dunlop Wellington boots size 9](https://www.toolstation.com/dunlop-protomaster-safety-wellington-boots/p66093) (Toolstation, £11.19)
 - ~~[Inflatable travel pillow](https://www.decathlon.co.uk/p/inflatable-trekking-pillow-mt500/_/R-p-343604) (Decathlon, £14.99)~~
 - [The Vegan Butcher - Zacchary Bird](https://www.waterstones.com/book/the-vegan-butcher/zacchary-bird/9781922754097) (Waterstones, £25.00)
 - ~~[Anything You Can Cook, I Can Cook Vegan - Richard Makin ](https://www.waterstones.com/book/anything-you-can-cook-i-can-cook-vegan/richard-makin/9781526638410) (Waterstones, £25.00)~~
