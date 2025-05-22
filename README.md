@@ -14,7 +14,7 @@
 - [Ecocide - When Will It End? LP](https://doomrock.com/tofu-carnage-records/1185/ecocide-when-will-it-end-lp) (DoomRock, €18.00)
 - [Red tin wind-up cable car](https://thehendersonsshop.co.uk/products/red-tin-toy-cable-car) (The Hendersons Shop, £38.00)
 - [Paine's Log Cabin Burner - Small](https://thehendersonsshop.co.uk/products/copy-of-paines-log-cabin-burner-small) (The Hendersons Shop, £11.99)
-- Live edge wooden chopping/serving board, round ~35cm
+- Live edge wooden chopping/serving board, round ~35cm (x2)
 
 <!-- - [Discogs](https://www.discogs.com/wantlist?user=161) -->
 
