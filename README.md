@@ -3,6 +3,7 @@
 - ~~[Enamel espresso cups](https://www.rinkit.com/products/130ml-white-enamel-espresso-cup-by-argon-tableware?variant=45183874760891) x2 (Rinkit, £1.60)~~
 - ~~[AlpKit Exo-Rail saddle pack mount](https://alpkit.com/products/exo-rail-seat-pack-mounting-system) (AlpKit, £17.99)~~
 - [Coffee Dosing Tray](https://uk.tenshundredsthousands.com/products/coffee-dosing-tray) (Tens Hundreds Thousands, £14.00)
+- [Circle Cutter 25mm](https://www.badgematic.de/en/circle-cutter-type-2006) (BadgeMatic, €79.99)
 - ~~[DF64 Gen 2 Single Dose Coffee Grinder](https://df64coffee.com/products/df64-gen-2-single-dose-coffee-grinder) (DF64 Coffee, £314.00)~~
 - ~~[KeySmart SmartCard](https://www.getkeysmart.com/products/keysmart-smartcard) (KeySmart, $39.99)~~
 - ~~[Travel tea mug](https://www.johnlewis.com/stanley-aerolight-transit-leak-proof-travel-mug-350ml/black/p110979714) (John Lewis, £31.99)~~
@@ -16,6 +17,7 @@
 - ~~[Inflatable travel pillow](https://www.decathlon.co.uk/p/inflatable-trekking-pillow-mt500/_/R-p-343604) (Decathlon, £14.99)~~
 - [The Vegan Butcher - Zacchary Bird](https://www.waterstones.com/book/the-vegan-butcher/zacchary-bird/9781922754097) (Waterstones, £25.00)
 - ~~[Anything You Can Cook, I Can Cook Vegan - Richard Makin ](https://www.waterstones.com/book/anything-you-can-cook-i-can-cook-vegan/richard-makin/9781526638410) (Waterstones, £25.00)~~
+- [Habak - Mil Orquídeas En Medio Del Desierto Lp](https://doomrock.com/music/lp/1543/habak-mil-orquideas...-lp-eu-press-3-versions) (DoomRock, €20.00)
 - [Habak / Lagrimas - Split LP](https://doomrock.com/music/lp/1538/habak/lagrimas-split-lp-2.-versions) (DoomRock, €20.00)
 - [Habak / Fractal - Split LP](https://doomrock.com/music/lp/1531/habak/fractal-split-lp) (DoomRock, €20.00)
 - [Link - Chapter IV LP](https://doomrock.com/music/lp/652/link-chapter-iv-lp) (DoomRock, €15.00)
