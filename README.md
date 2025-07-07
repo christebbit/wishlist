@@ -1,5 +1,5 @@
 - [Coffee Dosing Tray](https://uk.tenshundredsthousands.com/products/coffee-dosing-tray) (Tens Hundreds Thousands, £14.00)
-- [54mm bottomless portafilter](https://sigmacoffee.co.uk/collections/espresso-accessories/products/knodos-bottomless-portafilter?variant=44055744217329) (Sigma Coffee, £45.00)
+- [54mm bottomless portafilter](https://sigmacoffee.co.uk/products/knodos-bottomless-portafilter?variant=53580428378486) (Sigma Coffee, £45.00)
 - [Circle Cutter 25mm](https://www.badgematic.de/en/circle-cutter-type-2006) (BadgeMatic, €79.00)
 - [Lezyne Air Cage](https://www.swinnertoncycles.co.uk/lezyne-bottle-cage-matrix-air-cage-p129206/s375774) (Swinnerton Cycles, £22.00)
 - [Ortlieb Pannier Rucksack Adapter](https://www.cyclestore.co.uk/ortlieb_pannier_rucksack_adapter-ID_84475) (Cycle Store, £53.68)
