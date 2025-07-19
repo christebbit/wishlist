@@ -4,6 +4,7 @@
 - [Lezyne Air Cage](https://www.swinnertoncycles.co.uk/lezyne-bottle-cage-matrix-air-cage-p129206/s375774) (Swinnerton Cycles, £22.00)
 - [Ortlieb shoulder strap](https://www.cyclestore.co.uk/productDetails.asp?productID=55127&categoryID=1090) (Cycle Store, £7.19)
 - [Cyclista Antifascista cycling cap](https://cyclepunks.cc/product/ciclista-antifascista-cycling-cap/) (Cycle Punks, €22.90)
+- [Suspension seat post](https://www.decathlon.co.uk/p/suspension-seat-post-with-27-2-mm-diameter-and-29-8-and-31-8-mm-adaptor/_/R-p-142572) (Decathlon, £24.99)
 - [The Vegan Butcher - Zacchary Bird](https://www.waterstones.com/book/the-vegan-butcher/zacchary-bird/9781922754097) (Waterstones, £25.00)
 - [Habak - Mil Orquídeas En Medio Del Desierto LP](https://doomrock.com/music/lp/1543/habak-mil-orquideas...-lp-eu-press-3-versions) (DoomRock, €20.00)
 - [Habak / Lagrimas - Split LP](https://doomrock.com/music/lp/1538/habak/lagrimas-split-lp-2.-versions) (DoomRock, €20.00)
