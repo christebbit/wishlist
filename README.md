@@ -1,5 +1,5 @@
-- [Coffee Dosing Tray](https://uk.tenshundredsthousands.com/products/coffee-dosing-tray) (Tens Hundreds Thousands, £14.00)
-- [54mm bottomless portafilter](https://sigmacoffee.co.uk/products/knodos-bottomless-portafilter?variant=53580428378486) (Sigma Coffee, £45.00)
+<!-- - [Coffee Dosing Tray](https://uk.tenshundredsthousands.com/products/coffee-dosing-tray) (Tens Hundreds Thousands, £14.00) -->
+<!-- - [54mm bottomless portafilter](https://sigmacoffee.co.uk/products/knodos-bottomless-portafilter?variant=53580428378486) (Sigma Coffee, £45.00) -->
 - [Lezyne Air Cage](https://www.swinnertoncycles.co.uk/lezyne-bottle-cage-matrix-air-cage-p129206/s375774) (Swinnerton Cycles, £22.00)
 - [Ortlieb shoulder strap](https://www.cyclestore.co.uk/productDetails.asp?productID=55127&categoryID=1090) (Cycle Store, £7.19)
 - [Suspension seat post](https://www.decathlon.co.uk/p/suspension-seat-post-with-27-2-mm-diameter-and-29-8-and-31-8-mm-adaptor/_/R-p-142572) (Decathlon, £24.99)
