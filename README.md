@@ -1,10 +1,7 @@
-<!-- - [Coffee Dosing Tray](https://uk.tenshundredsthousands.com/products/coffee-dosing-tray) (Tens Hundreds Thousands, £14.00) -->
-<!-- - [54mm bottomless portafilter](https://sigmacoffee.co.uk/products/knodos-bottomless-portafilter?variant=53580428378486) (Sigma Coffee, £45.00) -->
 - [Lezyne Air Cage](https://www.swinnertoncycles.co.uk/lezyne-bottle-cage-matrix-air-cage-p129206/s375774) (Swinnerton Cycles, £22.00)
 - [Ortlieb shoulder strap](https://www.cyclestore.co.uk/productDetails.asp?productID=55127&categoryID=1090) (Cycle Store, £7.19)
 - [Suspension seat post](https://www.decathlon.co.uk/p/suspension-seat-post-with-27-2-mm-diameter-and-29-8-and-31-8-mm-adaptor/_/R-p-142572) (Decathlon, £24.99)
 - [Circle Cutter 25mm](https://www.badgematic.de/en/circle-cutter-type-2006) (BadgeMatic, €79.00)
-<!-- - [The Vegan Butcher - Zacchary Bird](https://www.waterstones.com/book/the-vegan-butcher/zacchary-bird/9781922754097) (Waterstones, £25.00) -->
 - [Habak - Mil Orquídeas En Medio Del Desierto LP](https://doomrock.com/music/lp/1543/habak-mil-orquideas...-lp-eu-press-3-versions) (DoomRock, €20.00)
 - [Habak / Lagrimas - Split LP](https://doomrock.com/music/lp/1538/habak/lagrimas-split-lp-2.-versions) (DoomRock, €20.00)
 - [Habak / Fractal - Split LP](https://doomrock.com/music/lp/1531/habak/fractal-split-lp) (DoomRock, €20.00)
@@ -14,6 +11,11 @@
 - [Terra Mater - Holocene Extinction Parts I & II LP](https://doomrock.com/music/lp/1124/terra-mater-holocene-extinction-parts-i-ii-lp) (DoomRock, €17.00)
 - [Ecocide - When Will It End? LP](https://doomrock.com/tofu-carnage-records/1185/ecocide-when-will-it-end-lp) (DoomRock, €18.00)
 - Live edge wooden chopping/serving board, round ~35cm (x2)
+
+<!-- - [Coffee Dosing Tray](https://uk.tenshundredsthousands.com/products/coffee-dosing-tray) (Tens Hundreds Thousands, £14.00) -->
+<!-- - [54mm bottomless portafilter](https://sigmacoffee.co.uk/products/knodos-bottomless-portafilter?variant=53580428378486) (Sigma Coffee, £45.00) -->
+
+<!-- - [The Vegan Butcher - Zacchary Bird](https://www.waterstones.com/book/the-vegan-butcher/zacchary-bird/9781922754097) (Waterstones, £25.00) -->
 
 <!-- - [Cyclista Antifascista cycling cap](https://cyclepunks.cc/product/ciclista-antifascista-cycling-cap/) (Cycle Punks, €22.90) -->
 <!-- - [Ortlieb Pannier Rucksack Adapter](https://www.cyclestore.co.uk/ortlieb_pannier_rucksack_adapter-ID_84475) (Cycle Store, £53.68) -->
