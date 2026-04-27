@@ -1,3 +1,4 @@
+- [Quella Nero Classic Geared Bicycle](https://quellabicycle.com/products/nero-classic-geared-bicycle-black?variant=45484003295447) (Quella, £699)
 - [Lezyne Air Cage](https://www.swinnertoncycles.co.uk/lezyne-bottle-cage-matrix-air-cage-p129206/s375774) (Swinnerton Cycles, £22.00)
 - [Ortlieb shoulder strap](https://www.cyclestore.co.uk/productDetails.asp?productID=55127&categoryID=1090) (Cycle Store, £7.19)
 - [Suspension seat post](https://www.decathlon.co.uk/p/suspension-seat-post-with-27-2-mm-diameter-and-29-8-and-31-8-mm-adaptor/_/R-p-142572) (Decathlon, £24.99)
@@ -8,8 +9,7 @@
 - [Habak / Lagrimas - Split LP](https://doomrock.com/music/lp/1538/habak/lagrimas-split-lp-2.-versions) (DoomRock, €20.00)
 - [Habak / Fractal - Split LP](https://doomrock.com/music/lp/1531/habak/fractal-split-lp) (DoomRock, €20.00) 
 -->
-
-- [Link - Chapter IV LP](https://doomrock.com/music/lp/652/link-chapter-iv-lp) (DoomRock, €15.00)
+<!-- - [Link - Chapter IV LP](https://doomrock.com/music/lp/652/link-chapter-iv-lp) (DoomRock, €15.00) -->
 
 <!-- 
 - [Ancst / King Apathy (Thränenkind) - Split LP](https://doomrock.com/music/lp/505/ancst/king-apathy-thraenenkind-split-lp-5.-versions) (DoomRock, €15.00)
@@ -29,7 +29,7 @@
 <!-- - [Ortlieb Pannier Rucksack Adapter](https://www.cyclestore.co.uk/ortlieb_pannier_rucksack_adapter-ID_84475) (Cycle Store, £53.68) -->
 <!-- - [Red tin wind-up cable car](https://thehendersonsshop.co.uk/products/red-tin-toy-cable-car) (The Hendersons Shop, £38.00) -->
 <!-- - [Paine's Log Cabin Burner - Small](https://thehendersonsshop.co.uk/products/copy-of-paines-log-cabin-burner-small) (The Hendersons Shop, £11.99) -->
-<!-- - [Discogs](https://www.discogs.com/wantlist?user=161) -->
+- [Discogs](https://www.discogs.com/wantlist?user=161) 
 
 <!--
 - ~~[Makita SDS drill](https://www.toolstation.com/makita-3-function-800w-sds-rotary-hammer-drill/p20464) (Toolstation, £144.98)~~
