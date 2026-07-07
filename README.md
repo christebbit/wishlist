@@ -1,7 +1,7 @@
 <!-- - [Quella Nero Classic Geared Bicycle](https://quellabicycle.com/products/nero-classic-geared-bicycle-black?variant=45484003295447) (Quella, £699) -->
 <!-- - [Lezyne Air Cage](https://www.swinnertoncycles.co.uk/lezyne-bottle-cage-matrix-air-cage-p129206/s375774) (Swinnerton Cycles, £22.00) -->
 
-- [Atwater Hip Pouch](https://www.atwateratelier.com/products/hip-pouch?variant=41467758215328) (Atwater, £66)
+- [Atwater Hip Pouch (Black)](https://www.atwateratelier.com/products/hip-pouch?variant=41467758215328) (Atwater, £66)
 - [Ortlieb shoulder strap](https://www.cyclestore.co.uk/productDetails.asp?productID=55127&categoryID=1090) (Cycle Store, £7.19)
 - [Suspension seat post](https://www.decathlon.co.uk/p/suspension-seat-post-with-27-2-mm-diameter-and-29-8-and-31-8-mm-adaptor/_/R-p-142572) (Decathlon, £24.99)
 - [Apple HomePod mini](https://www.apple.com/uk/shop/buy-homepod/homepod-mini/yellow) (Apple, £129)
