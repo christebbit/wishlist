@@ -5,6 +5,7 @@
 <!-- - [Ortlieb shoulder strap](https://www.cyclestore.co.uk/productDetails.asp?productID=55127&categoryID=1090) (Cycle Store, £7.19) -->
 - [Suspension seat post](https://www.decathlon.co.uk/p/suspension-seat-post-with-27-2-mm-diameter-and-29-8-and-31-8-mm-adaptor/_/R-p-142572) (Decathlon, £24.99)
 - [Apple HomePod mini](https://www.apple.com/uk/shop/buy-homepod/homepod-mini/yellow) (Apple, £129)
+- [Chrome Industries Citizen 15L messenger bag (black XRF)](https://chromeindustries.com/products/citizen-15l-messenger?pr_prod_strat=pinned&pr_rec_id=dcf60def6&pr_rec_pid=7759875211324&pr_ref_pid=7096483545148&pr_seq=uniform&variant=42112135364668)
 
 <!-- 
 - [Circle Cutter 25mm](https://www.badgematic.de/en/circle-cutter-type-2006) (BadgeMatic, €79.00)
