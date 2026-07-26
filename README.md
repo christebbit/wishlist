@@ -6,6 +6,8 @@
 - [Suspension seat post](https://www.decathlon.co.uk/p/suspension-seat-post-with-27-2-mm-diameter-and-29-8-and-31-8-mm-adaptor/_/R-p-142572) (Decathlon, £24.99)
 - [Apple HomePod mini](https://www.apple.com/uk/shop/buy-homepod/homepod-mini/yellow) (Apple, £129)
 - [Citizen 15L messenger bag (black XRF)](https://chromeindustries.com/products/citizen-15l-messenger?variant=42112135364668) (Chrome Industries, £170)
+- [Rhythm Elite Shorts (large)](https://alpkit.com/products/mens-rhythm-cycling-shorts) (AlpKit, £29.99)
+
 
 <!-- 
 - [Circle Cutter 25mm](https://www.badgematic.de/en/circle-cutter-type-2006) (BadgeMatic, €79.00)
