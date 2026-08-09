@@ -7,7 +7,7 @@
 - [Apple HomePod mini (yellow)](https://www.apple.com/uk/shop/buy-homepod/homepod-mini/yellow) (Apple, £129)
 - [Citizen 15L messenger bag (black XRF)](https://chromeindustries.com/products/citizen-15l-messenger?variant=42112135364668) (Chrome Industries, £170)
 - [Rhythm Elite Shorts (large)](https://alpkit.com/products/mens-rhythm-cycling-shorts) (AlpKit, £29.99)
-
+- [DMR V6 Nylon MTB Pedals (red)](https://www.halfords.com/cycling/bike-parts/handlebars-ends-grips-tape/dmr-v6-plastic-pedal-cro-mo-axle-418926.html?dwvar_418926_colour=Red) (Halfords, £13.95)
 
 <!-- 
 - [Circle Cutter 25mm](https://www.badgematic.de/en/circle-cutter-type-2006) (BadgeMatic, €79.00)
