@@ -1,8 +1,6 @@
 <!-- - [Quella Nero Classic Geared Bicycle](https://quellabicycle.com/products/nero-classic-geared-bicycle-black?variant=45484003295447) (Quella, £699) -->
 <!-- - [Lezyne Air Cage](https://www.swinnertoncycles.co.uk/lezyne-bottle-cage-matrix-air-cage-p129206/s375774) (Swinnerton Cycles, £22.00) -->
 
-- [Atwater Hip Pouch (Black)](https://www.atwateratelier.com/products/hip-pouch?variant=41467758215328) (Atwater, £66)
-- [Micro Hydro Mini Bottle (300ml, black)](https://www.hydroflask.com/gb/micro-hydro-mini-bottle-300-ml?colour=Black) (HydroFlask, £21.50)
 
 
 <!-- - [Ortlieb shoulder strap](https://www.cyclestore.co.uk/productDetails.asp?productID=55127&categoryID=1090) (Cycle Store, £7.19) -->
@@ -33,6 +31,12 @@
 
 <!-- - [Coffee Dosing Tray](https://uk.tenshundredsthousands.com/products/coffee-dosing-tray) (Tens Hundreds Thousands, £14.00) -->
 <!-- - [54mm bottomless portafilter](https://sigmacoffee.co.uk/products/knodos-bottomless-portafilter?variant=53580428378486) (Sigma Coffee, £45.00) -->
+
+<!--
+- [Atwater Hip Pouch (Black)](https://www.atwateratelier.com/products/hip-pouch?variant=41467758215328) (Atwater, £66)
+- [Micro Hydro Mini Bottle (300ml, black)](https://www.hydroflask.com/gb/micro-hydro-mini-bottle-300-ml?colour=Black) (HydroFlask, £21.50)
+
+-->
 
 <!-- - [The Vegan Butcher - Zacchary Bird](https://www.waterstones.com/book/the-vegan-butcher/zacchary-bird/9781922754097) (Waterstones, £25.00) -->
 
