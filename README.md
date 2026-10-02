@@ -7,12 +7,12 @@
 <!-- - [Suspension seat post](https://www.decathlon.co.uk/p/suspension-seat-post-with-27-2-mm-diameter-and-29-8-and-31-8-mm-adaptor/_/R-p-142572) (Decathlon, £24.99) -->
 - [25.4mm Leisure Handlebars](https://www.decathlon.co.uk/p/25-4mm-leisure-handlebars/410/m8171442) (Decathlon, £8.99)
 - [Prestaflator GO Lite](https://prestacycle.co.uk/collections/inflation-tools/products/prestaflator-go-lite-portable-digital-rechargeable-preset-bicycle-tire-inflator) (PrestaCycle UK, £75)
-- ~~[Apple HomePod mini (yellow)](https://www.apple.com/uk/shop/buy-homepod/homepod-mini/yellow) (Apple, £129)~~ wait until update announcement
 - [Citizen 15L messenger bag (black XRF)](https://chromeindustries.com/products/citizen-15l-messenger?variant=42112135364668) (Chrome Industries, £170)
 - [Rhythm Elite Shorts (large)](https://alpkit.com/products/mens-rhythm-cycling-shorts) (AlpKit, £29.99)
 <!-- - [DMR V6 Nylon MTB Pedals (red)](https://www.halfords.com/cycling/bike-parts/handlebars-ends-grips-tape/dmr-v6-plastic-pedal-cro-mo-axle-418926.html?dwvar_418926_colour=Red) (Halfords, £13.95) -->
 
 <!-- 
+- ~~[Apple HomePod mini (yellow)](https://www.apple.com/uk/shop/buy-homepod/homepod-mini/yellow) (Apple, £129)~~ wait until update announcement
 - [Circle Cutter 25mm](https://www.badgematic.de/en/circle-cutter-type-2006) (BadgeMatic, €79.00)
 - [Habak - Mil Orquídeas En Medio Del Desierto LP](https://doomrock.com/music/lp/1543/habak-mil-orquideas...-lp-eu-press-3-versions) (DoomRock, €20.00)
 - [Habak / Lagrimas - Split LP](https://doomrock.com/music/lp/1538/habak/lagrimas-split-lp-2.-versions) (DoomRock, €20.00)
