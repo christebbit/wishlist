@@ -1,6 +1,7 @@
 <!-- - [Quella Nero Classic Geared Bicycle](https://quellabicycle.com/products/nero-classic-geared-bicycle-black?variant=45484003295447) (Quella, £699) -->
 <!-- - [Lezyne Air Cage](https://www.swinnertoncycles.co.uk/lezyne-bottle-cage-matrix-air-cage-p129206/s375774) (Swinnerton Cycles, £22.00) -->
 
+- [Riveted Bread Knife](https://www.dunelm.com/product/wood-effect-riveted-bread-knife-8-inch-1000280005?defaultSkuId=31001595)
 
 
 <!-- - [Ortlieb shoulder strap](https://www.cyclestore.co.uk/productDetails.asp?productID=55127&categoryID=1090) (Cycle Store, £7.19) -->
