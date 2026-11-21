@@ -2,7 +2,7 @@
 <!-- - [Lezyne Air Cage](https://www.swinnertoncycles.co.uk/lezyne-bottle-cage-matrix-air-cage-p129206/s375774) (Swinnerton Cycles, £22.00) -->
 
 - [Riveted Bread Knife](https://www.dunelm.com/product/wood-effect-riveted-bread-knife-8-inch-1000280005?defaultSkuId=31001595) (Dunelm, £12)
-
+- [Vardagen carbon steel frying pan (24 cm)](https://www.ikea.com/gb/en/p/vardagen-frying-pan-carbon-steel-80581330/) (Ikea, £25)
 
 <!-- - [Ortlieb shoulder strap](https://www.cyclestore.co.uk/productDetails.asp?productID=55127&categoryID=1090) (Cycle Store, £7.19) -->
 <!-- - [Suspension seat post](https://www.decathlon.co.uk/p/suspension-seat-post-with-27-2-mm-diameter-and-29-8-and-31-8-mm-adaptor/_/R-p-142572) (Decathlon, £24.99) -->
